@@ -1,4 +1,5 @@
 ![](https://www.resguarda.com/wp-content/uploads/2023/04/Bullying.jpg)
+
 O bullying é um comportamento prejudicial que envolve o uso repetitivo de força,ameaças,
 zombarias ou exclusão para intimidar ou causar sofimento a outra pessoa. Isso pode
 ocorrer na escola, no trabalho, online ou em qualquer lugar ambiente social.
